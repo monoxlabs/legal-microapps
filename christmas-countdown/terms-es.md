@@ -62,4 +62,4 @@ Estos Términos se rigen por las leyes de España. Cualquier disputa se someter�
 
 Para cualquier consulta sobre estos Términos:
 
-**Email:** tu_correo@gmail.com
+**Email:** recetasroyale@gmail.com
